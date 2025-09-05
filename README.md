@@ -3,4 +3,5 @@
 गणपती बाप्पा मोरया
 27 August 
 Bappa 
-GanapatiBappa 
+Ganapati Bappa
+Ganapati Bappa Morya 
