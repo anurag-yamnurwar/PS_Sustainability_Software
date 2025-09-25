@@ -7,5 +7,5 @@ Ganapati Bappa
 Ganapati Bappa Morya 
 Ganapati Bappa Morya
 KMD BMD GBM JMD
-ShardaMata 
-
+Sharda Mata 
+Durga Mata
