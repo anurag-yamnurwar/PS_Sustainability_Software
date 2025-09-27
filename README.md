@@ -9,4 +9,5 @@ Ganapati Bappa Morya
 KMD BMD GBM JMD
 Sharda Mata 
 Durga Mata
-ShardaMata 
+ShardaMata
+Durga Mata 
