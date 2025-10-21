@@ -13,3 +13,5 @@ Durga Mata
 ShardaMata
 Durga Mata
 Jai Mata Di
+Diwali
+Laxmi Pooja 
